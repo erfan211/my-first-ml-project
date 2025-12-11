@@ -1,0 +1,1 @@
+sakht mashin hesab
